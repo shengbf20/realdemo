@@ -3,6 +3,3 @@ what am i expecting?
 
 do it again!!!!!
 what is a triangle? Please tell me because I really don't understand.
-
-
-hey~ what's new
